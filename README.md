@@ -11,6 +11,6 @@ despite insisting that evil always seems to have the superior aesthetic.
 
 Will he discover that the power was inside him all along?
 Will he realize that perhaps the real treasure was the friends we made along the way?
-Will he finally manage to get over his ex girlfriend?
+Will he finally manage to get over his evil ex girlfriend?
 
 Honestly, I don't know either! Let's find out! 
